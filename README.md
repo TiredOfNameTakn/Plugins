@@ -1,2 +1,2 @@
 # Plugins
-Pvm and utility plugins. Download if you aren't a wankstain.
+Pvm and utility plugins. Download if you aren't an ape.
